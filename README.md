@@ -1,0 +1,2 @@
+# HerugolfPrivacyPolicy
+Herugolf Privacy Policy
